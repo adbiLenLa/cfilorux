@@ -9,5 +9,5 @@ years of resetting calendars every month with 31 days.
 
 cfilorux gives a unique name to every m0ment in Time.
 
-jihn david jones
+john david jones
 vanha vaasa
